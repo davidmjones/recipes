@@ -1,13 +1,15 @@
+# Hungarian Cookie Treasures
+
 https://www.justapinch.com/recipes/dessert/dessert-cookies/hungarian-cookie-treasures.html
 
-Ingredients
+## Ingredients
 
-   8 oz cream cheese, softened
-    2 c  butter, softened
-    1 c  granulated sugar
-    5 c  all-purpose flour
-1 1/2 c  jam or preserves of choice (or nut filling)
-    1 c  powdered sugar, for dusting
+*    8 oz cream cheese, softened
+*     2 c  butter, softened
+*     1 c  granulated sugar
+*     5 c  all-purpose flour
+* 1 1/2 c  jam or preserves of choice (or nut filling)
+*     1 c  powdered sugar, for dusting
 
 Note: Don't over-chill the dough.  We found it easier to work with
 closer to room temperature.
